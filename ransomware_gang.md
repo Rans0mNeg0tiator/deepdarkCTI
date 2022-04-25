@@ -30,6 +30,7 @@
 |BLACKBYTE (4) |http://fl3xpz5bmgzxy4fmebhgsbycgnz24uosp3u4g33oiln627qq3gyw37ad.onion |(CURRENTLY DOWN)|||
 |BLACKMATTER |http://blackmax7su6mbwtcyo3xwtpfxpm356jjqrs34y4crcytpw7mifuedyd.onion |(CURRENTLY DOWN)|||
 |BLACKMATTER Support |http://supp24maprinktc7uizgfyqhisx7lkszb6ogh6lwdzpac23w3mh4tvyd.onion/EWX33VYY3IGOXSG5ZZ2 |(CURRENTLY DOWN)|||
+|Black BASTA | https://stniiomyjliimcgkvdszvgen3eaaoz55hreqqx6o77yvmpwt7gklffqd.onion ||||
 |BLACK SHADOW (DEEP WEB)|https://blackshadow.cc |(CURRENTLY DOWN)||https://t.me/Blackshadow_Team_official|
 |BLACK SHADOW |http://544corkfh5hwhtn4.onion |(CURRENTLY DOWN)|||
 |BONACI GROUP |http://bonacifryrxr4siz6ptvokuihdzmjzpveruklxumflz5thmkgauty2qd.onion |(CURRENTLY DOWN)|||
